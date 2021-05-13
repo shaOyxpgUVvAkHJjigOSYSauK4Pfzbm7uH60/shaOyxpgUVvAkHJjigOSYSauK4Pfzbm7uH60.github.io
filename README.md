@@ -1,2 +1,0 @@
-# shaOyxpgUVvAkHJjigOSYSauK4Pfzbm7uH60.github.io
-shaOyxpgUVvAkHJjigOSYSauK4Pfzbm7uH60
